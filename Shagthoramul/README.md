@@ -13,4 +13,4 @@ Notes:
   - 6 necromancer towers
 
 
-![http://i.imgur.com/5dc0FYU.png]()
+![](http://i.imgur.com/5dc0FYU.pngs "Shagthoramul")
