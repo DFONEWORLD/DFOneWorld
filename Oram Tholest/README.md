@@ -1,12 +1,12 @@
-#Shagthoramul, The Everseeing Planes
+#Oram Tholest, The World of Cyclones
 
 Submitted by user Zekken1209
 
 Download: http://dffd.bay12games.com/file.php?id=12589
 
-Name: Shagthoramul
+Name: Oram Tholest
 
-English Translation: The Everseeing Planes
+English Translation: The World of Cyclones
 
 Age (years): 100
 
@@ -18,4 +18,4 @@ Notes:
   - 6 necromancer towers
 
 
-![](http://i.imgur.com/5dc0FYU.pngs "Shagthoramul")
+![](http://i.imgur.com/OoJymsy.png "Oram Tholest")
