@@ -1,4 +1,4 @@
-Download the world here: http://dffd.bay12games.com/file.php?id=12602
+Download the world here: http://dffd.bay12games.com/file.php?id=12601
 
 Week 1 was played by /u/bchill23, who introduced the first player fortress to the world, Metalvault.
 
