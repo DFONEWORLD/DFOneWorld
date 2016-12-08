@@ -22,9 +22,9 @@ Source: https://www.reddit.com/r/DfOneWorld/comments/5gxdz5/metalvault/
 
 #Included images:
 
-![http://i.imgur.com/tjQzvg3.jpg]()
+![](http://i.imgur.com/tjQzvg3.jpg)
 
-![http://i.imgur.com/va8JmM5.jpg]()
+![](http://i.imgur.com/va8JmM5.jpg)
 
 #And a comment detailing things that might be important for future players:
 
