@@ -18,4 +18,4 @@ Notes:
   - 6 necromancer towers
 
 
-![](http://i.imgur.com/OoJymsy.png "Oram Tholest")
+![](http://i.imgur.com/5dc0FYU.png "Oram Tholest")
