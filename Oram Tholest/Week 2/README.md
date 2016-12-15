@@ -20,7 +20,7 @@ Week 2 was played by /u/SMEXY_PENGUIN, who created the fortresses of Tekkudfesh 
 
 7th of Malachite, 102 A dwarven family has arrived, both fit for the field. Not the thousand master craftsman dwarves we had hoped for, but a helping hand none the less. We’ll put them to work.
 
-15th of Malachite, 102 Id has been found dead, dehydrated. Just like Zaneg. We https://www.reddit.com/r/DfOneWorld/comments/5h733w/tekkudfesh_the_fortress_of_sorrows/have no time to mourn. Our reserves are running low; we need to hold out until more migrants arrive.
+15th of Malachite, 102 Id has been found dead, dehydrated. Just like Zaneg. We have no time to mourn. Our reserves are running low; we need to hold out until more migrants arrive.
 
 1st of Limestone, 102 Autumn has come. Still no migrants.
 
