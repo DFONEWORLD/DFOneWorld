@@ -2,7 +2,7 @@ Download the world here: http://dffd.bay12games.com/file.php?id=12611
 
 Week 2 was played by /u/SMEXY_PENGUIN, who created the fortresses of Tekkudfesh and Risenbatok
 
-#Reddit post detailing the evemts of the fortresses of Tekkudfesh and Risenbatok
+#Reddit post detailing the events of the fortresses of Tekkudfesh and Risenbatok
 
 24th of Opal, 101. It has been two weeks since the deep rumbling of Kogan shook Oram Tholest, and covered the land in a thick haze of ash. Many brave adventurers have traveled to Metalvault, none have returned. The fall of Metalvault marked a new age for Oram Tholest. The Age of Ambition. Many travelers would set out in the years to come. Some seeking their fame. Some seeking to create refuges for the unfairly treated. Others were simply sick of their lives, as was the cause for the seven dwarves who loaded up a wagon with everything a dwarf could want and set course for the scarlet hill.
 
